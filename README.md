@@ -1,2 +1,2 @@
-### Donations
+### ☕ Donations
 XMR ```48jBPxPZZkJ8BZZMRRqE3zapdkVahQPubH39DW3AEmZdGZUVMSnXjQfTidQSsB8DTxQfhjWtAMyKd99LcBbLZdZwLC1d1qd```
